@@ -1,4 +1,4 @@
-![Pedro]([https://media.tenor.com/x8v1oNUOmg4AAAAd/rickroll-roll.gif](https://tenor.com/view/racoon-pedro-gif-3845002910700718184))
+![Pedro](https://tenor.com/view/racoon-pedro-gif-3845002910700718184)
 
 
 ## 🌐 Socials:
