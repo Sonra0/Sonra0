@@ -1,4 +1,11 @@
-![Pedro](https://media1.tenor.com/m/ZAMoMuQgf9UAAAAd/mapache-pedro.gif)
+![t1](https://media.tenor.com/vkJQcnn06_EAAAAj/dancing-cat-oppa-gangnam-style.gif)
+![t2](https://media.tenor.com/vX-qFMkapQQAAAAj/cat-dancing.gif)
+![t3](https://media.tenor.com/kQA86PqyXZQAAAAj/small-dancing-white-cat-dance-funny.gif)
+![t4](https://media.tenor.com/RIxCFKqtj6cAAAAj/guitar-cat.gif)
+![t5](https://media.tenor.com/HAU_nZjbw9gAAAAj/cat-dance.gif)
+![t6](https://media.tenor.com/T_avUEk3aWwAAAAj/catgroove7tv-catgroove.gif)
+![t7](https://media.tenor.com/6wOn1FCxiJMAAAAj/cat-dance.gif)
+
 
 
 ## 🌐 Socials:
