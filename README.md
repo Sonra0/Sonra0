@@ -1,4 +1,4 @@
-![Pedro](https://tenor.com/eKcjIB7qh3Q.gif)
+![Pedro](https://media1.tenor.com/m/ZAMoMuQgf9UAAAAd/mapache-pedro.gif)
 
 
 ## 🌐 Socials:
