@@ -1,5 +1,4 @@
-# 💫 About Me:
-🔭 I’m currently working on: Front-end development, Game Dev with Unity, and software systems for Social Robotics.<br>👯 I’m looking to collaborate on: Innovative programming projects and creative web applications.<br>🌱 I’m currently learning: Deep diving into Artificial Intelligence and Machine Learning.<br>💬 Ask me about: JavaScript, C#, Discrete Math, or why robots are the future.<br>⚡ Fun fact: I spend my time bridging the gap between virtual worlds in Unity and physical robots in the lab.
+![Pedro]([https://media.tenor.com/x8v1oNUOmg4AAAAd/rickroll-roll.gif](https://tenor.com/view/racoon-pedro-gif-3845002910700718184))
 
 
 ## 🌐 Socials:
