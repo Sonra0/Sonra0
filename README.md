@@ -4,7 +4,6 @@
 ![t4](https://media.tenor.com/RIxCFKqtj6cAAAAj/guitar-cat.gif)
 ![t5](https://media.tenor.com/HAU_nZjbw9gAAAAj/cat-dance.gif)
 ![t6](https://media.tenor.com/T_avUEk3aWwAAAAj/catgroove7tv-catgroove.gif)
-![t7](https://media.tenor.com/6wOn1FCxiJMAAAAj/cat-dance.gif)
 
 
 
